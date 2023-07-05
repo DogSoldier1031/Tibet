@@ -1,5 +1,19 @@
 Tibet
 
+. (From the CIA) “The present population of Tibet 1s about 2,000,000. Of these 2,000,000. only about ten percent are pro-American and the majority of these are from the aristocratic, wealthy and religious claases. The other ninety percent are frionds or potential friends of the Mongolian People's Repudllc (MPR) and hope for Soviet ald. for the liberation and indevendence of Tibet.
+2. The ruler of Tibet is the young I4th Dalad Lang who was born in Chinghal Province 25X1X
+and shows pro-chinese tendencies, However, the Tibetan Governient is no longer subject to the wishes of the ruler. Conditions in Tibet are no longer a s they wareformerly when the Dalal Lamn held absolute dictatorial power in Tibet.”
+https://www.cia.gov/readingroom/docs/CIA-RDP82-00457R001800890009-0.pdf
+
+
+
+
+“Until 1959, when China cracked down on Tibetan rebels and the Dalai Lama fled to northern India, around 98% of the population was enslaved in serfdom. Drepung monastery, on the outskirts of Lhasa, was one of the world's largest landowners with 185 manors, 25,000 serfs, 300 pastures, and 16,000 herdsmen. High-ranking lamas and secular landowners imposed crippling taxes, forced boys into monastic slavery and pilfered most of the country's wealth – torturing disobedient serfs by gouging out their eyes or severing their hamstrings.
+
+Tashi Tsering, now an English professor at Lhasa University is representative of Tibetans that do not see China's occupation as worse tyranny. He was taken from his family near Drepung at 13 and forced into the Dalai Lama's personal dance troupe. Beaten by his teachers, Tsering put up with rape by a well-connected monk in exchange for protection. In his autobiography, The Struggle for Modern Tibet, Tsering writes that China brought long-awaited hope when is laid claim to Tibet in 1950.”
+https://amp.theguardian.com/commentisfree/2009/feb/10/tibet-china-feudalism
+
+WESTERN PROPAGANDA
 Tried to sell this while showing the Tibetan language on the blackboard and a Tibetan dictionary:
 
 https://www.nationalreview.com/corner/china-committing-cultural-genocide-against-tibetan-children/
