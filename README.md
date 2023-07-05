@@ -1,8 +1,8 @@
 Tibet
 
-(From the CIA) “The present population of Tibet 1s about 2,000,000. Of these 2,000,000. only about ten percent are pro-American and the majority of these are from the aristocratic, wealthy and religious claases. The other ninety percent are frionds or potential friends of the Mongolian People's Repudllc (MPR) and hope for Soviet ald. for the liberation and indevendence of Tibet.
+(From the CIA) “The present population of Tibet 1s about 2,000,000. Of these 2,000,000. only about ten percent are pro-American and the majority of these are from the aristocratic, wealthy and religious claases. The other ninety percent are frionds or potential friends of the Mongolian People's Republic (MPR) and hope for Soviet ald. for the liberation and indevendence of Tibet.
 2. The ruler of Tibet is the young I4th Dalad Lang who was born in Chinghal Province 25X1X
-and shows pro-chinese tendencies, However, the Tibetan Governient is no longer subject to the wishes of the ruler. Conditions in Tibet are no longer a s they wareformerly when the Dalal Lamn held absolute dictatorial power in Tibet.”
+and shows pro-chinese tendencies, However, the Tibetan Governient is no longer subject to the wishes of the ruler. Conditions in Tibet are no longer as they were formerly when the Dalal Lamn held absolute dictatorial power in Tibet.”
 https://www.cia.gov/readingroom/docs/CIA-RDP82-00457R001800890009-0.pdf
 
 
