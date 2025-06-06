@@ -43,3 +43,7 @@ Much of western propaganda is projection, such as accusing China of “debt trap
 https://www.theatlantic.com/international/archive/2021/02/china-debt-trap-diplomacy/617953/
 
 https://www.aljazeera.com/opinions/2021/5/6/rich-countri
+
+Tibet wants to stay with China, says Dalai Lama
+
+http://m.timesofindia.com/articleshow/61775261.cms?utm_source=contentofinterest&utm_medium=text&utm_campaign=cppst
